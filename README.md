@@ -1,6 +1,6 @@
 # Our team created software that searches for forgotten crypto wallets
 
-## 📣 EVERY CLIENT with a subscription gets not only the money making software itself, but also great service and customer support ✔️ so you can get started WITH PEACE OF MIND 😌🔟
+## 📣 EVERY CLIENT that purchases our software gets not only the money making software itself, but also great service and customer support ✔️ so you can get started WITH PEACE OF MIND 😌🔟
 
 ### WHAT IS THE DIFFERENCE BETWEEN BLOCKCHAINS AND WHAT IS THE DIFFERENCE BETWEEN ONE, TWO OR THREE BLOCKCHAIN PACKAGES ⁉️
 
