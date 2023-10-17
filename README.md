@@ -51,5 +51,5 @@ How many blockchains to buy is only up to you
 
 
 CONTACT 
-### Admin: [HACKER-X](https://t.me/cryptohacker909)
+### ADMIN: [HACKER-X](https://t.me/cryptohacker909)
 ### CHANNEL: [WALLET CRACKERS](https:t.me/walletcrackers)
